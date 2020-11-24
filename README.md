@@ -22,3 +22,30 @@
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/zscDypP/image.png" alt="image" border="0"></a>
 
 
+ну шо там подключение с швиндуса 
+
+<a href="https://ibb.co/QYZv0bv"><img src="https://i.ibb.co/NWX2RV2/image.png" alt="image" border="0"></a>
+
+
+подключение с ведроида
+
+![](Screenrecorder65345634.gif)
+
+
+ну с люнукса я примерно так подключался
+
+
+![](tenor.gif)
+
+
+шучу так
+
+
+![](VID2020112403.gif)
+
+
+ну тоесть блок активной учетки в ход в неё с люнукса 
+
+
+
+вывод тимвивер ламерский самый хайповый 
