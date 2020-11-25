@@ -1,5 +1,6 @@
 не ну а чо с тим вивером я знаком давно 
 
+
 просто скинуть файл ето изи
   
   
@@ -15,6 +16,7 @@
 
 
 кста гифка в качестве 4 шакала
+
 
 фотка передачи собственно 
 
@@ -49,3 +51,50 @@
 
 
 вывод тимвивер ламерский самый хайповый 
+
+
+
+так люнусо дрочь ну я конечно дурачок
+
+
+но гуглить умею
+
+
+так шо спустя 8~9 часов получилось вроде
+
+<a href="https://ibb.co/MRQYTYn"><img src="https://i.ibb.co/P507p7x/image.png" alt="image" border="0"></a>
+
+
+
+<a href="https://ibb.co/tLZQ0Br"><img src="https://i.ibb.co/9Zwcxn5/image-2020-11-25-132707.png" alt="image-2020-11-25-132707" border="0"></a>
+
+
+ну что то изи пошло после тупни с сохранением файла с портом 
+
+
+
+<a href="https://ibb.co/3Y8Ppvn"><img src="https://i.ibb.co/Vphkgxs/image.png" alt="image" border="0"></a>
+
+
+
+ключи там 
+
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/wpnq2d4/image.png" alt="image" border="0"></a>
+
+
+<a href="https://ibb.co/4MBFL5T"><img src="https://i.ibb.co/hHpgNtW/image.png" alt="image" border="0"></a>
+
+
+ключ быканул на парольную фразу но в итоге принял её
+
+
+<a href="https://ibb.co/QNzGgZj"><img src="https://i.ibb.co/85TVCJ4/image.png" alt="image" border="0"></a>
+
+
+bruh
+
+
+короче вроде правильно
+
+
