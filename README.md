@@ -73,7 +73,7 @@
 
 
 
-<a href="https://ibb.co/3Y8Ppvn"><img src="https://i.ibb.co/Vphkgxs/image.png" alt="image" border="0"></a>
+<a href="https://ibb.co/dg05QJt"><img src="https://i.ibb.co/2N7kjYS/image.png" alt="image" border="0"></a>
 
 
 
@@ -128,3 +128,20 @@ bruh
 
 
 вход по ключу настройка ssh успешна
+
+
+мб мб надо показать статус ssh ок
+
+
+<a href="https://ibb.co/6BxsCnq"><img src="https://i.ibb.co/xH05TCr/image-2020-11-25-221507.png" alt="image-2020-11-25-221507" border="0"></a>
+
+
+вот наруб на серв
+
+
+вот создание ключа хотя подключение серв даеёт через его созданый ключ который я просто в хом дерикторию пихнул 
+
+
+
+<a href="https://ibb.co/6XqNMDH"><img src="https://i.ibb.co/jJjHN3y/image.png" alt="image" border="0"></a>
+
