@@ -146,6 +146,6 @@ bruh
 <a href="https://ibb.co/6XqNMDH"><img src="https://i.ibb.co/jJjHN3y/image.png" alt="image" border="0"></a>
 
 
-<a href="https://ibb.co/mRLGTgs"><img src="https://i.ibb.co/QJ2fQtB/NABGci-LCTd-U-gigapixel-scale-6-00x.jpg" alt="NABGci-LCTd-U-gigapixel-scale-6-00x" border="0"></a>
+<a href="https://ibb.co/mRLGTgs"><img src="https://i.ibb.co/mRLGTgs/NABGci-LCTd-U-gigapixel-scale-6-00x.jpg" alt="NABGci-LCTd-U-gigapixel-scale-6-00x" border="0"></a>
 
 доп я совсем просто забыл про это задание
