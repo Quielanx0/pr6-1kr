@@ -146,6 +146,6 @@ bruh
 <a href="https://ibb.co/6XqNMDH"><img src="https://i.ibb.co/jJjHN3y/image.png" alt="image" border="0"></a>
 
 
-<a href="https://ibb.co/mRLGTgs"><img src="https://i.ibb.co/mRLGTgs/NABGci-LCTd-U-gigapixel-scale-6-00x.jpg" alt="NABGci-LCTd-U-gigapixel-scale-6-00x" border="0"></a>
+![Image alt](https://github.com/Quielanx0/pr6/blob/main/NABGciLCTdU-gigapixel-scale-6_00x.jpg)
 
 доп я совсем просто забыл про это задание
