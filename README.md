@@ -145,3 +145,7 @@ bruh
 
 <a href="https://ibb.co/6XqNMDH"><img src="https://i.ibb.co/jJjHN3y/image.png" alt="image" border="0"></a>
 
+
+<a href="https://ibb.co/WvsTL6G"><img src="https://i.ibb.co/fdQcs2q/image-2020-11-26-180033.png" alt="image-2020-11-26-180033" border="0"></a>
+
+доп я совсем просто забыл про это задание
